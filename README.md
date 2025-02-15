@@ -4,7 +4,7 @@
 
 **Albert Vallente**
 
-**Emman Guillermo**
+**Emmanuel Guillermo**
 
 **Rho Jane Lazarraga**
 
